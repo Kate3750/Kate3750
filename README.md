@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kate3750
-- 👀 I’m interested in ...coonecting with my buyers all over the world
+- 👀 I’m interested in ...conecting with my buyers all over the world
 - 🌱 I’m currently learning ...more on smart contract 
 - 💞️ I’m looking to collaborate on ... Blockchain technology 
 - 📫 How to reach me ...+16027053869
